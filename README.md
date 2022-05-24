@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CRAZYGIRLS22
-- 👀 I’m interested in video games like Krunker.io ( I use same name in all games and platforms like the current one I'm using)
+- 👀 I’m interested in video games like Krunker.io
 - 🌱 I’m currently learning German and working in a Winery
 - 💞️ I’m looking to collaborate on translations in Krunker.io (I'm Portuguese)
 - 📫 How to reach me : aguiar.ana.37@gmail.com 
